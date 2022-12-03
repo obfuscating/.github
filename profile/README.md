@@ -1,4 +1,7 @@
-# Hello, World!
+# Bye, World!
 
-### https://lain.quest 
-### iwakura@lain.quest
+### [`suicide`](https://lain.quest) [`suicide`](mailto:iwakura@lain.quest)
+### [`suicide`](https://lain.quest) [`suicide`](mailto:iwakura@lain.quest)
+### [`suicide`](https://lain.quest) [`suicide`](mailto:iwakura@lain.quest)
+### [`suicide`](https://lain.quest) [`suicide`](mailto:iwakura@lain.quest)
+### [`suicide`](https://lain.quest) [`suicide`](mailto:iwakura@lain.quest)
